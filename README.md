@@ -1,7 +1,6 @@
+![](https://www.facebook.com/share/1Cn98cMkNU/?mibextid=wwXIfr)
 # 👋 Hi, I'm **JunielT**  
 Welcome to my GitHub! 🚀  
-
----
 
 ## 📌 About Me  
 - 🎓 College student — hardworking, creative, analytical, and approachable  
