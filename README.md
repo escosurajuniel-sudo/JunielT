@@ -1,4 +1,4 @@
-![](https://www.facebook.com/share/1Cn98cMkNU/?mibextid=wwXIfr)
+![](Screenshot_20250816_153151_Gallery.jpg)
 # 👋 Hi, I'm **JunielT**  
 Welcome to my GitHub! 🚀  
 
