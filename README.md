@@ -1,4 +1,4 @@
-https://github.com/escosurajuniel-sudo
+![Design and Development]https://github.com/escosurajuniel-sudo)
 
 # 👋 Hi, I'm JunielT
 
