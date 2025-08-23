@@ -1,5 +1,5 @@
 ![](e72cd976-a552-4067-bfd8-8735a7f2058e.jpg)
-# 👋 Hi, I'm **JunielT**  
+# 👋 Hi, I'm **Juniel Teraytay**  
 Welcome to my GitHub! 🚀  
 
 ## 📌 About Me  
