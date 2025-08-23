@@ -1,4 +1,4 @@
-![](Screenshot_20250816_153151_Gallery.jpg)
+![](e72cd976-a552-4067-bfd8-8735a7f2058e.jpg)
 # 👋 Hi, I'm **JunielT**  
 Welcome to my GitHub! 🚀  
 
